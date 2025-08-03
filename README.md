@@ -1,1 +1,1 @@
-just a practice session to polish my skills
+Just a practice session to polish my skills
